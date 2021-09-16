@@ -1,6 +1,6 @@
 ### Hi there 👋, my name is Francesco
 #### I live in Italy 🍕
-If you are curious about me visit my linekdin profile.
+If you are curious about me visit my linkedin profile.
 
 
 
